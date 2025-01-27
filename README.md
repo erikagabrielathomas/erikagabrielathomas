@@ -3,3 +3,4 @@ Welcome to my GitHub page! My name is erika, but I go by 'E,' but whichever is O
 - 📫 How to reach me: thomas.4410@buckeyemail.osu.edu
 - 😄 Pronouns: she/her/hers/ella
 - ⚡ Fun fact: i have a collection of Formula 1 legos!
+![20240823_015738068_iOS](https://github.com/user-attachments/assets/485a963d-5d5f-409a-a004-9c2a92349ce8)
